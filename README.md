@@ -1,1 +1,3 @@
 What's the point of this, and a bio? Make up your mind github....
+
+Anyways, Hi!! I'm Jayden, and I LOVE to start projects and NOT FINISH them! ;)
